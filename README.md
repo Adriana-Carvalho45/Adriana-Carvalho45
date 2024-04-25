@@ -1,4 +1,4 @@
-- 👋 Ola pessoaleu sou  @Adriana-Carvalho45
+- 👋 Ola pessoal eu sou  @Adriana-Carvalho45
 - 👀 Sou estudante de tecnologia,tentando ser nerd haha mas esta difícil.
 - 🌱 Aceito criticas construtivas,juntos podemos aprender cada vez mais...
 - 💞️ Amo esta frase:"O céu é o limite e o conhecimento não ocupa espaço. "
